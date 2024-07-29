@@ -1,6 +1,6 @@
 - [https://socialsoft9.github.io](https://socialsoft9.github.io)
 - [https://medium.com/@BelleMacaulay](https://medium.com/@BelleMacaulay)
-- [https://www.quora.com/profile/Belle-Macaulay](https://www.quora.com/profile/Belle-Macaulay](https://www.quora.com/profile/Belle-Macaulay/Yes-PBNs-Work-Heres-My-Experience-In-the-realm-of-SEO-Private-Blog-Networks-PBNs-are-a-hot-topic-They-can-be-con)
+- [https://www.quora.com/profile/Belle-Macaulay](https://www.quora.com/profile/Belle-Macaulay/Yes-PBNs-Work-Heres-My-Experience-In-the-realm-of-SEO-Private-Blog-Networks-PBNs-are-a-hot-topic-They-can-be-con)
 - [https://www.youtube.com/channel/UCZEzMoUy6Qn30mCvqOyaoYw](https://www.youtube.com/channel/UCZEzMoUy6Qn30mCvqOyaoYw)
 - [https://yo.fan/bellemacaulay](https://yo.fan/bellemacaulay)
 - [https://x.com/BelleMacaulay9](https://x.com/BelleMacaulay9)
